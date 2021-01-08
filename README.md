@@ -1,4 +1,4 @@
-# Jenny_Eunjoo_2020
+# Jenny_Eunjoo_2020_My hompage: https://erfq1031.wixsite.com/my-site-7
 Self-introduction- click! click!_ https://youtu.be/qyk4J657d7w
 I would like to learn works or jobs in terms of building human relationships based on not only mathematics,
 and statistics but also making programs by python, c++, java. I believe that the mathematics and statistics
